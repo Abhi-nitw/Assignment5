@@ -1,1 +1,0 @@
-This site is devolped by Ahishek Singh
